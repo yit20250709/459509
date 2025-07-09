@@ -47,4 +47,4 @@
 通过选择合适的免费平台，你可以享受高清、不卡顿的日本AV影片观看体验。同时，保持设备和数据的安全，确保你在享受内容的同时，保护自己的隐私和安全。希望本文的推荐能帮你找到合适的平台，尽享最新免费资源。
 
 
-<span style="display:none;">[Canonical link](  ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/yit20250709/459509 ）</span>
